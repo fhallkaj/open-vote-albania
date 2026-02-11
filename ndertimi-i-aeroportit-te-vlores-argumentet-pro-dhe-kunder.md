@@ -1,0 +1,99 @@
+# Ndërtimi i Aeroportit të Vlorës – Argumentet Pro dhe Kundër
+
+1. Hyrje
+
+Ky dokument synon të paraqesë në mënyrë të balancuar argumentet kryesore pro dhe kundër ndërtimit të Aeroportit të Vlorës, me qëllim informimin e publikut dhe lehtësimin e një procesi votimi të ndërgjegjshëm. Qëllimi është të paraqiten aspektet ekonomike, mjedisore, sociale dhe strategjike të projektit.
+
+2. Përshkrimi i Projektit
+
+Aeroporti i Vlorës është një projekt infrastrukture që synon ndërtimin e një aeroporti të ri ndërkombëtar në zonën jugore të Shqipërisë. Objektivat kryesore përfshijnë:
+
+Rritjen e kapacitetit ajror për turizmin dhe transportin.
+
+Zhvillimin ekonomik të rajonit të jugut.
+
+Uljen e ngarkesës në aeroportet ekzistuese.
+
+Përmirësimin e lidhjeve ndërkombëtare.
+
+3. Argumentet Pro 3.1 Zhvillimi Ekonomik
+
+Mund të krijojë vende të reja pune direkte dhe indirekte.
+
+Rrit investimet e huaja në turizëm dhe biznes.
+
+Nxit zhvillimin e infrastrukturës përreth (rrugë, hotele, shërbime).
+
+3.2 Rritja e Turizmit
+
+Lehtëson aksesin për turistët ndërkombëtarë drejt rivierës shqiptare.
+
+Redukton kohën e udhëtimit drejt destinacioneve turistike.
+
+Mund të rrisë konkurrueshmërinë e Shqipërisë si destinacion turistik.
+
+3.3 Strategji Kombëtare
+
+Diversifikon infrastrukturën aeroportuale.
+
+Përmirëson lidhjen e jugut me tregjet ndërkombëtare.
+
+Mund të përdoret edhe për emergjenca apo transport strategjik.
+
+3.4 Zhvillimi Rajonal
+
+Ndihmon në balancimin e zhvillimit midis veriut dhe jugut.
+
+Rrit aktivitetin ekonomik lokal.
+
+4. Argumentet Kundër 4.1 Ndikimi Mjedisor
+
+Rreziku për ekosistemet lokale dhe biodiversitetin.
+
+Ndikimi në zonat e mbrojtura dhe habitatet natyrore.
+
+Rritja e ndotjes akustike dhe atmosferike.
+
+4.2 Kostot Financiare
+
+Investim i madh publik ose me garanci shtetërore.
+
+Rreziku i kthimit të ulët ekonomik nëse trafiku nuk përmbush pritshmëritë.
+
+Kosto mirëmbajtjeje afatgjatë.
+
+4.3 Mbivendosja me Aeroporte të Tjera
+
+Afërsia me aeroportin e Tiranës dhe projekte të tjera aeroportuale.
+
+Mundësi për konkurrencë të brendshme jo efikase.
+
+4.4 Ndikimi Social
+
+Ndryshime në komunitetet lokale.
+
+Rritje e mundshme e çmimeve të tokës dhe presion urbanistik.
+
+5. Pyetje Kryesore për Votuesit
+
+A do të sjellë përfitime ekonomike të qëndrueshme?
+
+A janë marrë masa të mjaftueshme për mbrojtjen e mjedisit?
+
+A justifikon kërkesa e tregut ndërtimin e një aeroporti të ri?
+
+Cilat janë alternativat e tjera për zhvillimin e rajonit?
+
+6. Përfundim
+
+Ndërtimi i Aeroportit të Vlorës paraqet si mundësi të rëndësishme për zhvillim ekonomik dhe turistik, ashtu edhe sfida të konsiderueshme mjedisore dhe financiare. Vendimmarrja duhet të bazohet në një analizë të kujdesshme dhe në balancimin e interesave afatgjata të vendit.
+
+7. Seksion për Komente dhe Votim
+
+Argumentet tuaja pro:
+
+Argumentet tuaja kundër:
+
+Sugjerime alternative:
+
+Vota juaj (Pro / Kundër / Neutral):

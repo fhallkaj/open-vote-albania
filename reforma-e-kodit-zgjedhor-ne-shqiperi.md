@@ -1,3 +1,6 @@
+---
+requiresKYC: true
+---
 # Reforma e Kodit Zgjedhor në Shqipëri
 
 ### Dokument për Diskutim dhe Votim Publik
